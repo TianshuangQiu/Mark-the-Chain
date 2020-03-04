@@ -1,6 +1,6 @@
 import numpy as np
 
-with open("tw", "r") as myfile:  # importing the file
+with open("as", "r", encoding="utf8") as myfile:  # importing the file
     data = myfile.read()
 
 s = """"""  # alternatively, type it here
