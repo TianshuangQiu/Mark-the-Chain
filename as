@@ -1,0 +1,42 @@
+Aspect
+“In dreams and nightmares, days have passed”
+Hey.
+“Hmm?”
+Tell me a story.
+“Once upon a time, there was a boy in China. And he is going to go to school in a distant country.”
+Ooh, is he excited?
+“Yes, very. He stood by the window of his bedroom, gazing out at the dark night sky. It was summer, and a sweet rain was drizzling outside. He opened the window, letting in the sugary smell of Huai trees. There was someone walking with a flashlight, casting amorphous shadows on the face of his apartment building. He looked back over his shoulder at the door, at his suitcase squeezed haphazardly through it. He had spent 2 weeks packing and repacking, making sure everything was in its proper place, making sure that each item he held dear was in there somewhere. Suddenly a panic shot through him, and he began ruffling through his luggage, looking for the jade amulet from his grandma. He found it stuffed into a sock.”
+“He fished it out, feeling the coldness of the stone and the roundness of the shape representing wholeness and completion. His eyes wandered in the darkness, and he wondered if and when he would be back here again.”
+Well, will he?
+“Yes, after a year. The boy opened the door and stepped back into his room, a place of dreams, an anchor of safety when he found himself in a foreign land with a foreign language. No, not English: he spoke the language fluently. No, it is something deeper, more profound and fundamental. They spoke a language of joy and happiness, of belonging. So often when he felt estranged from the people he saw every day, he thought of home, his apartment where all was familiar. And yet here he looked around at his room and realized that time moved on without him. The cactus he had grown for 3 years had split into two pots; the apartment building was recolored; and the neighborhood was almost unrecognizable. It is then that the boy finally understood that there was no going back.”
+“When he returned, he felt the enigmatic barrier again, an invisible chasm that separates him from them. But he wanted to, needed to have someone to talk to, so he went home and fashioned a mask, painting it so that it looks exactly like them. He talked to someone, laughing together for the first time in a while after he put it on. The boy thought, why stop there? He has found a way; he was never going back to being alone. He made more and more masks, detailed coloring under intricate designs. Thus the boy became someone with a hundred faces.”
+So he would always have a friend?
+“So he would always have a friend.”
+How did that turn out?
+“He found that he couldn’t pretend through everything. For in spite of all the long nights he practiced and painted, he felt heat leap uncontrollably from his eyes, saw the colors he spent so long perfecting collide and crash, and heard the crisp sound of shattering plastic and porcelain.”
+How did that happen?
+“It started on a bright day when he looked past his current school, into college, into a future so uncertain he didn’t even think it would happen. They were to build a path for themselves. So he did. He measured and paved. Then he glanced sideways at his friends. He noticed a distinct difference: no matter which way he looked, his road seemed to be steeper. It was as if he was locked into a basin, with uphills on every side; it was as if the land itself was inherently repellent to him.”
+“He thought that it couldn’t be that hard, a simple number out of 1600. He imagined it climbing a mountain, and he envisioned countless stars stretching out into the horizon at the zenith. He winced at the average acceptance rates for people like him, people that seek knowledge in a foreign country. Then he swore that he would beat the people who raised these mountains at their own game. He began his climb, urged on by more than just flesh and bone, a dark determination driving him into a frenzy. Countless times he sat at home, staring out of his second-story window, gazing out at the spring breeze and summer sun, longing to be outside, to laugh with his friends, only to turn down to practice grammar and math.”
+“It was then that the cloud of childhood evaporated from his eyes, and they stung from the sharp, freezing air streaming in. Tears leaped out uncontrollably. He cried for the death of the dream of an easy, bright future, and wept at the incredible… unfairness of it. Regardless, his face was quickly dried by the wind from his ascent.”
+“Then he finally grabbed the topmost ledge and hoisted himself over, struggling to his feet. He looked around, and found himself alone on a small plateau, with more tasks in front. Up there, in the cold, thin air, he shivered. Alone.”
+What about the people he put the masks on for in the first place?
+“After he mastered the art of changing masks, transitioning from magenta delight to emerald dismay seamlessly. However, he realized that there was a price to be paid.”
+“How so?”
+“He was great friends with, or at least he thought he was, a group of people. He enjoyed their company and recalled fondly their Friendsgiving dinner. It was a rather warm Thanksgiving eve, and he sat around the hot pot with 7 other people, clamoring for the freshly stewed beef. Then later, he screamed with 5 other people when someone rolled a 10 in Mario Party and blew up everyone in the field. He felt at home, at ease, and that this should last forever.”
+Let me guess, it didn’t.
+“No, they were older than him, so they went before him into college. And then nothing, no calls, no texts, nothing. They were always the ones who had cared about him, driving him around without much complaint.”
+Why was driving so important?
+“Because he always felt… inferior to his friends, like a clumsy rock that needed to be carried around. It was like walking on crutches, but every step is a crippling reminder that he does not belong, a reminder of the long lines at the DMV. After more than an hour of waiting in line, his document has the ‘alien’ box checked. The lady working at the front desk looked up at him and curtly told him to wait until he turned 18.”
+“He felt her gaze, hot and stinging, sink into flesh and teared up. In spite of all that he tried, all he studied, there was nothing that could change the place of his birth, which seemed to define him wherever he went.”
+“And he wondered who he truly was. What did those he considered his friends see, did they see the efforts he has made to fit in, or did they, too, only see his birth in a place far from their own? He had always believed that there were journeys one must walk alone, but he never wished to feel alone forever. The Monkey's Paw works in strange ways.”
+So where is he now?
+“It has always been the goal to reach the peak, but now, with several acceptances from institutions and at the end of this road, he wondered what it was all for. He had won the game, but at what cost? Where was the reward he had been promised? He felt an emptiness creeping up inside, unstoppable and overwhelming.”
+And what of the masks?
+“He remembered watching the TV shows and football games his classmates were talking about, sitting through hour after hour of boredom just to have something to talk about. His masks served their purpose: they made him fit. They didn’t serve a purpose anymore, though. There was no longer a difference between him and the masks. He has become them.”
+Isn’t that bad?
+“Not particularly, it made him him. He wouldn’t have done it any other way, because there was no other way. His actions were like dominos, it only goes in one direction and not the other. There is no closure on what he did, but perhaps there doesn’t need to be one. He does not know when or if his current friends will leave him as his previous batch did, yet he moves on nonetheless.”
+“Now he stands as he stood 4 years ago, uncertain. He marvels at how much he has changed, eyes wandering around his room. The jade ring his grandmother gave him makes so much more sense now. The end is in the beginning and the beginning is in the end. The 4 years gave him more questions than answers. He looks at his passport the color of blood, a proof of identity that saw him through laughter and tears. But he is calm now. Perhaps there are indeed endless galaxies waiting for him ahead, but he now sees that there is no need to strive for them: they’ll come to him.”
+And then what?
+“Ah, that is a story for another time… a later time.”
+But I’m so curious to know how it ends…
+“Me too.”
